@@ -16,9 +16,11 @@ This data is in lieu of Heal the World - Campaign - according to Om Shanti Princ
 
 # Possible Preventions 
 
+1)Cleanser
+https://www.flipkart.com/order_details?order_id=OD122898052350661000&item_id=12289805235066100&unit_id=12289805235066100000
 
 
-1)Sprays
+2)Sprays
 
 
 https://www.clickoncare.com/viro-shield-mouth-spray-30ml/questions
@@ -27,12 +29,12 @@ https://www.clickoncare.com/viro-shield-mouth-spray-30ml/questions
 https://viraleze.co/
 
 
-2)Siver nanotechnology on microbes !!
+3)Siver nanotechnology on microbes !!
 
 https://www.miracle.care/
 
 
-3)Capsules (Herbal)
+4)Capsules (Herbal)
 
 https://www.amazon.in/gp/product/B08NPJXBNY/ref=ppx_yo_dt_b_asin_title_o08_s00?ie=UTF8&psc=1
 
